@@ -1,1 +1,3 @@
-# never-give-up
+# *Never Give Up: God Is Good When Life Isn’t – Book Review*
+## *Life has a way of throwing curveballs that don’t just graze us—they knock us flat. We’ve all had those seasons where the “light at the end of the tunnel” feels like an oncoming train. In his deeply resonant book, “Never Give Up: God is Good When Life Isn’t,” beloved author Max Lucado takes us on a journey through the life of Joseph. Through Joseph’s story of betrayal, enslavement, and eventual triumph, Lucado offers more than just platitudes; he provides a survival guide for the soul. If you’ve ever felt forgotten by God or crushed by circumstances, this book is a refreshing reminder that while life is often messy, God’s goodness is constant.* [More details…](https://spiritualkhazaana.com/never-give-up-god-is-good-when-life-isnt/)
+## #nevergiveup #faithfulness #godsforgiveness #godisgood #trustgod
